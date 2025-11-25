@@ -3,6 +3,8 @@
 
 **Premium Source Code for Only $5**
 
+---
+
 ## 🌌 Aura Luxury Emporium  
 **Premium Liquid-Glass E-Commerce Web Application — Source Code for $5**
 
@@ -42,21 +44,15 @@ https://orders25.netlify.app/
 
 ---
 
-## 🏷️ About the Paid Code  
-The full source code is included for **only $5**.  
-Perfect for developers who want a stylish, modern e-commerce template.
+## 💵 Buy the Source Code
 
-Use this code to:  
-- Create your own store  
-- Build digital product shops  
-- Customize the UI/UX  
-- Learn luxury-themed design practices  
+Purchase the full Aura Luxury Emporium source code for **$5**:
+
+[Contact via WhatsApp to Buy](https://wa.me/94767869503?text=Hello,+I+want+to+purchase+the+Aura+Luxury+Emporium+source+code)
 
 ---
 
 ## 📞 Contact (WhatsApp — Messages Only)
-
-If you want to purchase the source code or have questions, contact me:
 
 **📱 +94 76 786 9503 (Messages Only)**
 

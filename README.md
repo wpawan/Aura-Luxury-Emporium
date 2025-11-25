@@ -1,5 +1,5 @@
 # Aura – Liquid Glass E‑Commerce  
-![Aura Banner](https://via.placeholder.com/1200x200/865EFF/FFFFFF?text=AURA+LIQUID+GLASS+STORE)
+
 
 **Premium Source Code for Only $5**
 
